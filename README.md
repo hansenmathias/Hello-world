@@ -1,2 +1,5 @@
 # Hello-world
-Just another repository
+
+sindsygt godt at se dig
+går det godt ja
+mega

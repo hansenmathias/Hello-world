@@ -8,3 +8,10 @@ mega
 hg
 adsd
 sdac
+
+
+
+så var det tid 
+
+
+til en god dag
